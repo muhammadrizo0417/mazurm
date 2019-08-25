@@ -1,0 +1,2 @@
+# mazurm
+Hichko nmena zingay
